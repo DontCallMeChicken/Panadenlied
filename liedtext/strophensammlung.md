@@ -1,6 +1,6 @@
 
 > Sorry, aber ich bevorzuge meine Chicken Nuggets ohne Federn! Also kein Lecken von mir. ^^  
-– Wobberty, 06.04.2023
+Wobberty, 06.04.2023
 
 > Gibs mir knusprig, gibs mir knusprig, gibs mir knusprigt. Du weist, ich werde schwach, wenn du's mir in der Panade machst.  
 – Freya (Exoreya), 06.04.2023
