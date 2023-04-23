@@ -14,4 +14,5 @@
 > Hey ho, willkommen beim Chicken hier, wir follower, das sind wir. Wollen heute Nuggets machen, und dabei herzlich lachen. Panade aus Käse, Ei und Mehl ist bereit, jetzt ist es soweit: Gewendet und heiß gebraten, könnt ihr jetzt raten… Kommen wir saftig raus, groß ist der Applaus. Von vorne geht's wieder los… Nuggets wollen wir machen und dabei lachen.  
 – Darky (19darky85)
 
->
+> Und wenn wir Nuggets sind zu dunkelblond, dann hau' auf uns drauf 'ne Ketchup Front.  
+– Darky (19darky85)
