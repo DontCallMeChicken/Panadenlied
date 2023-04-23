@@ -9,10 +9,13 @@
 – Wobberty, 06.04.2023
 
 > Zieh dich aus, Chickenlein, zeige uns dein schönes Bein. Welze dich in der Panade, und vergesse nicht die Wade. Auch die Brust nicht vergessen, die wollen wir auch essen. Knusprig wirst du von außen und innen, da kann jeder Esser nur gewinnen.  
-– Darky (19darky85)
+– Darky (19darky85), 06.04.2023
 
 > Hey ho, willkommen beim Chicken hier, wir follower, das sind wir. Wollen heute Nuggets machen, und dabei herzlich lachen. Panade aus Käse, Ei und Mehl ist bereit, jetzt ist es soweit: Gewendet und heiß gebraten, könnt ihr jetzt raten… Kommen wir saftig raus, groß ist der Applaus. Von vorne geht's wieder los… Nuggets wollen wir machen und dabei lachen.  
-– Darky (19darky85)
+– Darky (19darky85), 06.04.2023
 
 > Und wenn wir Nuggets sind zu dunkelblond, dann hau' auf uns drauf 'ne Ketchup Front.  
-– Darky (19darky85)
+– Darky (19darky85), 06.04.2023
+
+> Deine Nuggets bleiben in meinem Herzen fest verankert, auch wenn das Feuer sie zu Kohle verdammt, so bleibt die Erinnerung an das weiß panierte Gold.  
+– Darky (19darky85), 06.04.2023
