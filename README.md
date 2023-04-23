@@ -9,4 +9,4 @@
 >
 > Durch die damit verbundene Krustenbildung erhalten sie die Form und verhindern den Zerfall von Gargut. Der Masseverlust wird genauso wie der Verlust von Flüssigkeit eingeschränkt. Dazu erhöht sich der Geschmack durch Maillard-Reaktion bei den meist stärkearmen Lebensmitteln.
 
-Quelle: [Wikipedia.org](https://de.wikipedia.org/wiki/Panade_(Umh%C3%BCllung)) (Creative Commons Attribution-ShareAlike 3.0 Unported)
+– Quelle: [Wikipedia.org](https://de.wikipedia.org/wiki/Panade_(Umh%C3%BCllung)) (Creative Commons Attribution-ShareAlike 3.0 Unported)
