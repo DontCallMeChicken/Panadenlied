@@ -22,3 +22,6 @@
 
 > Chicken: C = cool, H = hot, I = interesting, C = charming, K = killing, E = exploding, N = nobel prize.  
 – Darky (19darky85), 06.04.2023
+
+> Heute sind wir wieder hier, und haben eine große Gier! Auf schön gegrilltes Huhn, sollte man mal wieder tun. Wäre passend zum Wochenende. Liebe Grüße beim zubereiten ich euch sende.  
+– Darky (19darky85), 13.04.2023
