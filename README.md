@@ -1,5 +1,6 @@
 # Panadenlied
 > @CreationOfDeath du bist doch Mod. Überrede Gockel mal dazu, dass wir eine Art Zeltlager aufmachen, wo wir uns alle gegenseitig panieren und dann drehen wir ein Musikvideo daraus!
+
 – Zitat von Wobberty, Chatnachricht aus der Echtzeitübertragung vom ollen Gockel am 6. April 2023
 
 ## Panade (Umhüllung)
