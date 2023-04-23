@@ -21,4 +21,4 @@
 – Darky (19darky85), 06.04.2023
 
 > Chicken: C = cool, H = hot, I = interesting, C = charming, K = killing, E = exploding, N = nobel prize.  
-– – Darky (19darky85), 06.04.2023
+– Darky (19darky85), 06.04.2023
