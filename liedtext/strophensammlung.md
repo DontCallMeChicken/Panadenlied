@@ -19,3 +19,6 @@
 
 > Deine Nuggets bleiben in meinem Herzen fest verankert, auch wenn das Feuer sie zu Kohle verdammt, so bleibt die Erinnerung an das weiß panierte Gold.  
 – Darky (19darky85), 06.04.2023
+
+> Chicken: C = cool, H = hot, I = interesting, C = charming, K = killing, E = exploding, N = nobel prize.  
+– – Darky (19darky85), 06.04.2023
