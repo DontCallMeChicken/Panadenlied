@@ -10,3 +10,8 @@
 
 > Zieh dich aus, Chickenlein, zeige uns dein schönes Bein. Welze dich in der Panade, und vergesse nicht die Wade. Auch die Brust nicht vergessen, die wollen wir auch essen. Knusprig wirst du von außen und innen, da kann jeder Esser nur gewinnen.  
 – Darky (19darky85)
+
+> Hey ho, willkommen beim Chicken hier, wir follower, das sind wir. Wollen heute Nuggets machen, und dabei herzlich lachen. Panade aus Käse, Ei und Mehl ist bereit, jetzt ist es soweit: Gewendet und heiß gebraten, könnt ihr jetzt raten… Kommen wir saftig raus, groß ist der Applaus. Von vorne geht's wieder los… Nuggets wollen wir machen und dabei lachen.  
+– Darky (19darky85)
+
+>
